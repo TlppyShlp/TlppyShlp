@@ -1,4 +1,8 @@
-## Hi there 👋
+<img width="2269" height="1120" alt="image" src="https://github.com/user-attachments/assets/744d5d02-50bf-4953-80e5-e9633c0316a0" />
+
+# [Strawpage](https://springlovers.straw.page) , [Roblox](https://www.roblox.com/users/1488136027/profile) , [Steam](https://steamcommunity.com/id/ontheheights/)
+
+<img align="right" width="300" height="600" alt="Tippyship" src="https://github.com/user-attachments/assets/6a2eb84d-6d84-4400-8670-4b841a31d489" />
 
 <!--
 **TlppyShlp/TlppyShlp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
